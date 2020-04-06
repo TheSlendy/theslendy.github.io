@@ -1,1 +1,0 @@
-# theslendy.github.io
